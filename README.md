@@ -5,7 +5,7 @@
 
 - 👨‍💻 More Info On [https://niikhill.com](https://niikhill.com)
 
-- 📫 How to reach me **t.me/im_nikhil**
+- 📫 How to reach me **[https://t.me/im_nikhil](@im_nikhil)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
